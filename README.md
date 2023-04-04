@@ -4,7 +4,7 @@
 - 🤔 I am interested in coding, digital domain and new technologies.
 - 🔭 I would like to become a skilled and experienced developer.
 - 🌱 I am currently learning all about development and specifically how to learn it and master it.
-- 👯 I am looking to collaborate on many projects to see all the development methodology in the world, good luck to me!
+- 👯 I am looking for collaborate on many projects to see all the development methodology in the world, good luck to me!
 - 📫 How to reach me: sambatra.fifa@gmail.com
 
 <br>
